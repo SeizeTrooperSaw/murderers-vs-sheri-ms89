@@ -1,4 +1,4 @@
-#  
+#  Experience dig deeper for brainrots like never before with dig deeper for brainrots Script hidden, the #1 Script. Includes anti-ban and no clip for
 
 
 
